@@ -1,1 +1,1 @@
-# Kaleidoscope_airyu-cup
+# KALEIDSCOPE_airyu-cup
